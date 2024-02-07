@@ -1,2 +1,2 @@
-# cricstore
-have fun !
+# Welcome to my page
+
